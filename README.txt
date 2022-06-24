@@ -1,3 +1,0 @@
-  ESPORTS
-
- ° Futebol
